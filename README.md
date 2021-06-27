@@ -62,3 +62,23 @@ hard to find skins that i have.
 # [-+LunaSakurakouji+-](https://excel.s-ul.eu/wV2PhHuCzqriNOVH.oskAZA)
 ![screenshot3616](https://user-images.githubusercontent.com/58571851/123553321-223c5900-d783-11eb-8392-9db589dc2e05.jpg)
 
+# [mabelmeow-ver1.2](https://mega.nz/file/DMIAzbYD#5DcWWv_HD8vlVyzRB31F-YQMAFWTRakweUR35U3sJRs)
+![screenshot3617](https://user-images.githubusercontent.com/58571851/123553526-595f3a00-d784-11eb-8bfd-834f854d4aa5.jpg)
+
+# [senrenbanka2.0](https://excel.s-ul.eu/b5fKFK1exVYBfvMz.osk)
+![screenshot3618](https://user-images.githubusercontent.com/58571851/123553613-ddb1bd00-d784-11eb-9ba4-d0b3f2446e95.jpg)
+
+# [osu!Koikake](https://excel.s-ul.eu/PJHNYFXj7lFmoV6g.osk)
+![screenshot3619](https://user-images.githubusercontent.com/58571851/123553637-12be0f80-d785-11eb-9087-a00df9101377.jpg)
+
+# [Hatsuyuki SakuraVer1.1](
+![screenshot3620](https://user-images.githubusercontent.com/58571851/123553716-a5f74500-d785-11eb-8d2f-dea95b865f66.jpg)
+
+# [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk)
+![screenshot3621](https://user-images.githubusercontent.com/58571851/123554120-4732cb00-d787-11eb-9982-3967896fd070.jpg)
+
+# [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk)
+![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
+
+# [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk)
+![screenshot3623](https://user-images.githubusercontent.com/58571851/123554207-9973ec00-d787-11eb-8698-a8a97f82b737.jpg)
