@@ -1,6 +1,6 @@
 # hard-to-find-osu-skins
 hard to find skins that i have.
-## if you have skins you wanna add, contant either me (baron6060#6548) or chip (chip#4111) on discord.
+## if you have skins you wanna add, contant either me (baron6060#6548) or chip (chip#4111) on discord. theres a playlist at the bottom of the page with a yt playlist of skins we want to add.
 
 # [Haga skin remake](https://excel.s-ul.eu/CShurP3KYL7onnQ7.osk)
 ![screenshot3597](https://user-images.githubusercontent.com/58571851/123552049-0f268a80-d77d-11eb-8376-2a3ada6f4a8d.jpg)
@@ -85,3 +85,5 @@ hard to find skins that i have.
 
 # [❀Saimonea v3_Gochiusa](https://www.mediafire.com/file/y7o4nk7pc7vwggt/%25E2%259D%2580Saimonea_v3_Gochiusa.osk/file)
 ![screenshot3624](https://user-images.githubusercontent.com/58571851/123554379-59f9cf80-d788-11eb-84ad-65d14b65b725.jpg)
+
+# [The Playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD)
