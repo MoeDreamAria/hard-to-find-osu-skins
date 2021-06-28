@@ -1,5 +1,5 @@
 # hard-to-find-osu-skins
-## if you have skins you wanna add or something from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
+## if you have skins you wanna add to this list or any of the skins from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
 
 # [haga1115 remake](https://mega.nz/file/hMwyTQIZ#YFxtaCQ13Gwlda_392zuOzJcK5ANEVN0yvZqZeQVLHU)
