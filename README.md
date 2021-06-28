@@ -41,9 +41,6 @@
 # [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk)
 ![screenshot3611](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
 
-# [Daynoob](https://excel.s-ul.eu/NXRVoWMpgLbSP5ix.osk)
-![screenshot3612](https://user-images.githubusercontent.com/58571851/123553045-d63ce480-d781-11eb-9af6-49ae996fb71a.jpg)
-
 # [elohere x Seouless (HDAcai edit)](https://excel.s-ul.eu/nAAtY34PCybNbRko.osk)
 ![screenshot3613](https://user-images.githubusercontent.com/58571851/123553168-5400f000-d782-11eb-8e50-ccf6ba8b5714.jpg)
 
