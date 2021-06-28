@@ -1,8 +1,8 @@
 # hard-to-find-osu-skins
-hard to find skins that i have.
-## if you have skins you wanna add to this list, contact either me (baron6060#6548) or chip#4111 on discord, also theres a playlist at the bottom of the page with a yt playlist of skins we want to add to this list.
+## if you have skins you wanna add or something from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
-# [Haga skin remake](https://excel.s-ul.eu/CShurP3KYL7onnQ7.osk)
+
+# [haga1115 remake](https://mega.nz/file/hMwyTQIZ#YFxtaCQ13Gwlda_392zuOzJcK5ANEVN0yvZqZeQVLHU)
 ![screenshot3597](https://user-images.githubusercontent.com/58571851/123552049-0f268a80-d77d-11eb-8376-2a3ada6f4a8d.jpg)
 
 # [Sparemix](https://excel.s-ul.eu/HeqOarS7pfDliH83.osk)
@@ -14,8 +14,8 @@ hard to find skins that i have.
 # [5th v1.5](https://excel.s-ul.eu/ve9Y88Qt2wR9aUFP.osk)
 ![screenshot3600](https://user-images.githubusercontent.com/58571851/123552322-49dcf280-d77e-11eb-8207-187c31a47eb8.jpg)
 
-# [aetrnaaberrateFujiwara v4 remake](https://excel.s-ul.eu/aZakmAONJ27l01WX.osk)
-![screenshot3601](https://user-images.githubusercontent.com/58571851/123552432-c7086780-d77e-11eb-9258-528aece29b5a.jpg)
+# [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144)
+![screenshot3601](https://user-images.githubusercontent.com/86570889/123661420-0b017800-d824-11eb-8051-08275447fd73.jpg)
 
 # [Acxeleration](https://excel.s-ul.eu/m9jDd8QyybrVa5CE.osk)
 ![screenshot3602](https://user-images.githubusercontent.com/58571851/123552485-09ca3f80-d77f-11eb-9fa3-ddf82fdeef92.jpg)
@@ -26,19 +26,13 @@ hard to find skins that i have.
 # [Charlotte remake](https://excel.s-ul.eu/xL0hWorDYhH9TG2h.osk)
 ![screenshot3604](https://user-images.githubusercontent.com/58571851/123552576-70e7f400-d77f-11eb-9fae-707a5c7aa984.jpg)
 
-# [Dungeon](https://excel.s-ul.eu/sf2ZMk1nPS8W8sTw.osk)
-![screenshot3605](https://user-images.githubusercontent.com/58571851/123552663-c6240580-d77f-11eb-9a23-5f38d007910a.jpg)
-
-# [Kune259](https://excel.s-ul.eu/7eDwRvnhftfpsawT.osk)
-![screenshot3606](https://user-images.githubusercontent.com/58571851/123552718-008da280-d780-11eb-9282-ccf598dabb49.jpg)
+# [Dungeon](https://mega.nz/file/gAwgXBKK#PVxW_Er1LxVdLz63mHAPJJYD79GPdJzJ3S2cSUSvrL4)
+![screenshot180](https://user-images.githubusercontent.com/86570889/123674457-2626b480-d831-11eb-9cfe-c7afa772d871.jpg)
 
 # [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk)
 ![screenshot3607](https://user-images.githubusercontent.com/58571851/123552768-4e0a0f80-d780-11eb-847c-056ed28072b4.jpg)
 
-# [Reimu-desu kamui](https://excel.s-ul.eu/Mr41y3iNWx1RkqjI.osk)
-![screenshot3608](https://user-images.githubusercontent.com/58571851/123552803-83aef880-d780-11eb-9df5-cb5ad5b71bcb.jpg)
-
-# [ykvdtr](https://excel.s-ul.eu/SpXZkgjCGNv4XQLe.osk)
+# [gyo](https://excel.s-ul.eu/SpXZkgjCGNv4XQLe.osk)
 ![screenshot3609](https://user-images.githubusercontent.com/58571851/123552835-bfe25900-d780-11eb-9b0d-4f89fb6a9df3.jpg)
 
 # [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk)
@@ -89,5 +83,54 @@ hard to find skins that i have.
 # [Niko_7.0.1337 shavit edit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk)
 ![screenshot3625](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
 
+# [cptnXn freedom dive](https://mega.nz/file/QBo0SQAY#hPdEybPEMA_vV7iC1bCB2dSpC3Un7Y3G8t1Q0uxGjCk)
+![screenshot138](https://user-images.githubusercontent.com/86570889/123662026-95e27280-d824-11eb-8e49-81cc9d2fb297.jpg)
 
-# [The Playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD)
+# [OhAHO](https://mega.nz/file/BM401KCK#ij0Tx0b1Ni3tzuMeFqr4JrsN6PDhpp1qjR97AaOeZKQ)
+![screenshot142](https://user-images.githubusercontent.com/86570889/123662462-05f0f880-d825-11eb-9ba8-79eff1c498b2.jpg)
+
+# [shizuru kamui clover days](https://mega.nz/file/NIwyTKAa#dtf5EVPunL69e5iquOqIe72QVVXc_a9_fE5rR5a4fik)
+![screenshot143](https://user-images.githubusercontent.com/86570889/123662900-67b16280-d825-11eb-93b8-239b624188ac.jpg)
+
+# [rafis green](https://mega.nz/file/4MhwTAoK#hnFEHgBzdHcXQwZZ2QtGw18Ecgv0EtV7leiFHlGU45Q)
+![screenshot164](https://user-images.githubusercontent.com/86570889/123663120-9d564b80-d825-11eb-84d9-16e0b1d8add1.jpg)
+
+# [Emperorpenguin83](https://mega.nz/file/wFpkBa4C#jWvHS2ebzWb2ne0RgPpUBMJlUpWEKtaZUzxhp5sCPU0)
+![screenshot165](https://user-images.githubusercontent.com/86570889/123664725-20c46c80-d827-11eb-8318-6d64982cef63.jpg)
+
+# [Recia](https://mega.nz/file/RMQkyJ5b#aEQWsfXTKpC5kgq86Ly5q3MNXZv0_-TSOLArKBKswzU)
+![screenshot166](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
+
+# [kisaragi chihaya aka penew skin](https://mega.nz/file/xUZARBzS#JtDGOO2w-6uM9OzM8tJsdDFCPZOZCbL4WGoPh8IG2EY)
+![screenshot167](https://user-images.githubusercontent.com/86570889/123667163-6a15bb80-d829-11eb-9e88-cd2676fb93fc.jpg)
+
+# [mecarl](https://mega.nz/file/kFJA1bKL#xcIYFGw_ILnQzhgAiisw5tcBmNFZYUG5KexWmSFtICc)
+![screenshot168](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
+
+# [evb 1](https://mega.nz/file/kN52jKzY#Q5jIOQGTIT3lJJVA4HtLonKQyxaeSR1gzN16ow6S4Ek)
+![screenshot171](https://user-images.githubusercontent.com/86570889/123669552-bc57dc00-d82b-11eb-8e2b-448e83f3dfca.jpg)
+
+# [evb 2](https://mega.nz/file/RN4A3aSK#kuQ36HO2EHhUO4U3at2A_IJV23UOaCCsmFkd5zZxXZU)
+![screenshot170](https://user-images.githubusercontent.com/86570889/123669507-aea25680-d82b-11eb-9526-849436bc7d35.jpg)
+
+# [evb 3 remake](https://mega.nz/file/ZQggCSLa#A1qhkhV33zErqQXuRF7IxErV3nZ91bWbGP3_U-vNdBM)
+![screenshot172](https://user-images.githubusercontent.com/86570889/123669637-d396c980-d82b-11eb-948f-88cda00297b7.jpg)
+
+# [evb 4 remake](https://mega.nz/file/9BxEAIaR#tCPe7IRzRaddDry3kber4ydimRhwknyX4SOqypIZpi0)
+![screenshot169](https://user-images.githubusercontent.com/86570889/123669001-30de4b00-d82b-11eb-8681-d5e0887373f8.jpg)
+
+# [happystick summer tour](https://mega.nz/file/UBhinaqS#mBmnIagcsLaNwM71l3g4xBTl-2cI7iFWiOHbWRmtbwQ)
+![screenshot173](https://user-images.githubusercontent.com/86570889/123670486-caf2c300-d82c-11eb-9d1e-c695fa58f755.jpg)
+
+# [knalli](https://mega.nz/file/Ud4GzLSK#apzzCBliEZwX4Esj_iwN7ppoySBInP1y8DTtfIlgsC0)
+![screenshot176](https://user-images.githubusercontent.com/86570889/123672704-2c1b9600-d82f-11eb-94b6-982294e6dfd2.jpg)
+
+# [lsxyz9](https://mega.nz/file/lY5gnJwB#USsCZDC4V5w_G4UCbK4a59tmAk6C_ilKmz879nGVpVs)
+![screenshot177](https://user-images.githubusercontent.com/86570889/123673756-5f125980-d830-11eb-9497-ef99c71e1e20.jpg)
+
+# [lsxyz10](https://mega.nz/file/xZo2DBhS#MYEA5zCtv5l_lnbXPcjND9lLPOKEdcvnxZTZu9pxCvo)
+![screenshot178](https://user-images.githubusercontent.com/86570889/123673882-7e10eb80-d830-11eb-9b58-c43390916714.jpg)
+
+# [kantoku skin](https://mega.nz/file/4RxyWLrZ#3MQlPQmC2YniId7EkFlahG9xtX-ohTecYXSB3mkxJIg)
+![screenshot179](https://user-images.githubusercontent.com/86570889/123674081-bb757900-d830-11eb-869c-d27b90bd2261.jpg)
+
