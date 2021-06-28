@@ -86,4 +86,8 @@ hard to find skins that i have.
 # [❀Saimonea v3_Gochiusa](https://www.mediafire.com/file/y7o4nk7pc7vwggt/%25E2%259D%2580Saimonea_v3_Gochiusa.osk/file)
 ![screenshot3624](https://user-images.githubusercontent.com/58571851/123554379-59f9cf80-d788-11eb-84ad-65d14b65b725.jpg)
 
+# [Niko_7.0.1337 By shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk)
+![screenshot3625](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
+
+
 # [The Playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD)
