@@ -2,82 +2,82 @@
 ## if you have skins you wanna add to this list or any of the skins from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
 
-# [haga1115 remake](https://mega.nz/file/hMwyTQIZ#YFxtaCQ13Gwlda_392zuOzJcK5ANEVN0yvZqZeQVLHU)
+# [haga1115 remake](https://mega.nz/file/hMwyTQIZ#YFxtaCQ13Gwlda_392zuOzJcK5ANEVN0yvZqZeQVLHU) | [Preview](https://streamable.com/864a4k)
 ![screenshot3597](https://user-images.githubusercontent.com/58571851/123552049-0f268a80-d77d-11eb-8376-2a3ada6f4a8d.jpg)
 
-# [Sparemix](https://excel.s-ul.eu/HeqOarS7pfDliH83.osk)
+# [Sparemix](https://excel.s-ul.eu/HeqOarS7pfDliH83.osk) | [Preview](https://streamable.com/9jk9cg)
 ![screenshot3598](https://user-images.githubusercontent.com/58571851/123552105-4d23ae80-d77d-11eb-9f97-e654a21d06d2.jpg)
 
-# [Boom+Kynan](https://excel.s-ul.eu/DVXDMp4gj0YYYuK5.osk)
+# [Boom+Kynan](https://excel.s-ul.eu/DVXDMp4gj0YYYuK5.osk) | [Preview](https://streamable.com/t2c2v5)
 ![screenshot3599](https://user-images.githubusercontent.com/58571851/123552217-d89d3f80-d77d-11eb-9ed3-3d9fb585e55d.jpg)
 
-# [5th v1.5](https://excel.s-ul.eu/ve9Y88Qt2wR9aUFP.osk)
+# [5th v1.5](https://excel.s-ul.eu/ve9Y88Qt2wR9aUFP.osk) | [Preview](https://streamable.com/wxez23)
 ![screenshot3600](https://user-images.githubusercontent.com/58571851/123552322-49dcf280-d77e-11eb-8207-187c31a47eb8.jpg)
 
-# [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144)
+# [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144) | [Preview](https://streamable.com/6bmg0i)
 ![screenshot3601](https://user-images.githubusercontent.com/86570889/123661420-0b017800-d824-11eb-8051-08275447fd73.jpg)
 
-# [Acxeleration](https://excel.s-ul.eu/m9jDd8QyybrVa5CE.osk)
+# [Acxeleration](https://excel.s-ul.eu/m9jDd8QyybrVa5CE.osk) | [Preview](https://streamable.com/gj93oe)
 ![screenshot3602](https://user-images.githubusercontent.com/58571851/123552485-09ca3f80-d77f-11eb-9fa3-ddf82fdeef92.jpg)
 
-# [aR!](https://excel.s-ul.eu/RKEQfh8I6HFzCDLV.osk)
+# [aR!](https://excel.s-ul.eu/RKEQfh8I6HFzCDLV.osk) | [Preview](https://streamable.com/qub7ol)
 ![screenshot3603](https://user-images.githubusercontent.com/58571851/123552536-4302af80-d77f-11eb-9ea5-100b23b1b9ff.jpg)
 
-# [Charlotte remake](https://excel.s-ul.eu/xL0hWorDYhH9TG2h.osk)
+# [Charlotte remake](https://excel.s-ul.eu/xL0hWorDYhH9TG2h.osk) | [Preview](https://streamable.com/fwpt2v)
 ![screenshot3604](https://user-images.githubusercontent.com/58571851/123552576-70e7f400-d77f-11eb-9fae-707a5c7aa984.jpg)
 
-# [Dungeon](https://mega.nz/file/gAwgXBKK#PVxW_Er1LxVdLz63mHAPJJYD79GPdJzJ3S2cSUSvrL4)
+# [Dungeon](https://mega.nz/file/gAwgXBKK#PVxW_Er1LxVdLz63mHAPJJYD79GPdJzJ3S2cSUSvrL4) | [Preview](https://streamable.com/l6layv)
 ![screenshot180](https://user-images.githubusercontent.com/86570889/123674457-2626b480-d831-11eb-9cfe-c7afa772d871.jpg)
 
-# [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk)
+# [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk) | [Preview](https://streamable.com/r24c7z)
 ![screenshot3607](https://user-images.githubusercontent.com/58571851/123552768-4e0a0f80-d780-11eb-847c-056ed28072b4.jpg)
 
-# [gyo](https://excel.s-ul.eu/SpXZkgjCGNv4XQLe.osk)
+# [gyo](https://excel.s-ul.eu/SpXZkgjCGNv4XQLe.osk) | [Preview](https://streamable.com/r7ksqh)
 ![screenshot3609](https://user-images.githubusercontent.com/58571851/123552835-bfe25900-d780-11eb-9b0d-4f89fb6a9df3.jpg)
 
-# [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk)
+# [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk) | [Preview](https://streamable.com/9kx5f2)
 ![screenshot3610](https://user-images.githubusercontent.com/58571851/123552874-fa4bf600-d780-11eb-96e7-67c01f74fdc7.jpg)
 
-# [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk)
+# [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
 ![screenshot3611](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
 
-# [elohere x Seouless (HDAcai edit)](https://excel.s-ul.eu/nAAtY34PCybNbRko.osk)
+# [elohere x Seouless (HDAcai edit)](https://excel.s-ul.eu/nAAtY34PCybNbRko.osk) | [Preview](https://streamable.com/svllz2)
 ![screenshot3613](https://user-images.githubusercontent.com/58571851/123553168-5400f000-d782-11eb-8e50-ccf6ba8b5714.jpg)
 
-# [- ☆彡Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk)
+# [☆彡Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![screenshot3614](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
-# [Osuloseum](https://excel.s-ul.eu/9ptFfkCgSN8zL80U.osk)
+# [Osuloseum](https://excel.s-ul.eu/9ptFfkCgSN8zL80U.osk) | [Preview](https://streamable.com/gpctjs)
 ![screenshot3615](https://user-images.githubusercontent.com/58571851/123553256-d7badc80-d782-11eb-9c21-d8912c2ebf4f.jpg)
 
-# [-+LunaSakurakouji+-](https://excel.s-ul.eu/wV2PhHuCzqriNOVH.oskAZA)
+# [-+LunaSakurakouji+-](https://excel.s-ul.eu/wV2PhHuCzqriNOVH.oskAZA) | [Preview](https://streamable.com/eon3zi)
 ![screenshot3616](https://user-images.githubusercontent.com/58571851/123553321-223c5900-d783-11eb-8392-9db589dc2e05.jpg)
 
-# [mabelmeow-ver1.2](https://mega.nz/file/DMIAzbYD#5DcWWv_HD8vlVyzRB31F-YQMAFWTRakweUR35U3sJRs)
+# [mabelmeow-ver1.2](https://mega.nz/file/DMIAzbYD#5DcWWv_HD8vlVyzRB31F-YQMAFWTRakweUR35U3sJRs) | [Preview](https://streamable.com/t6c0g0)
 ![screenshot3617](https://user-images.githubusercontent.com/58571851/123553526-595f3a00-d784-11eb-8bfd-834f854d4aa5.jpg)
 
-# [senrenbanka2.0](https://excel.s-ul.eu/b5fKFK1exVYBfvMz.osk)
+# [senrenbanka2.0](https://excel.s-ul.eu/b5fKFK1exVYBfvMz.osk) | [Preview](https://streamable.com/0zhh3s)
 ![screenshot3618](https://user-images.githubusercontent.com/58571851/123553613-ddb1bd00-d784-11eb-9ba4-d0b3f2446e95.jpg)
 
-# [osu!Koikake](https://excel.s-ul.eu/PJHNYFXj7lFmoV6g.osk)
+# [osu!Koikake](https://excel.s-ul.eu/PJHNYFXj7lFmoV6g.osk) | [Preview](https://streamable.com/ndvwiy)
 ![screenshot3619](https://user-images.githubusercontent.com/58571851/123553637-12be0f80-d785-11eb-9087-a00df9101377.jpg)
 
-# [Hatsuyuki SakuraVer1.1](https://excel.s-ul.eu/FPqVFjEjGbzKOyoW.osk)
+# [Hatsuyuki SakuraVer1.1](https://excel.s-ul.eu/FPqVFjEjGbzKOyoW.osk) | [Preview](https://streamable.com/y7ij5u)
 ![screenshot3620](https://user-images.githubusercontent.com/58571851/123553716-a5f74500-d785-11eb-8d2f-dea95b865f66.jpg)
 
-# [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk)
+# [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk) | [Preview](https://streamable.com/d3hq2s)
 ![screenshot3621](https://user-images.githubusercontent.com/58571851/123554120-4732cb00-d787-11eb-9982-3967896fd070.jpg)
 
-# [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk)
+# [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
-# [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk)
+# [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk) | [Preview](https://streamable.com/p7zm20)
 ![screenshot3623](https://user-images.githubusercontent.com/58571851/123554207-9973ec00-d787-11eb-8698-a8a97f82b737.jpg)
 
-# [❀Saimonea v3_Gochiusa](https://www.mediafire.com/file/y7o4nk7pc7vwggt/%25E2%259D%2580Saimonea_v3_Gochiusa.osk/file)
+# [❀Saimonea v3_Gochiusa](https://www.mediafire.com/file/y7o4nk7pc7vwggt/%25E2%259D%2580Saimonea_v3_Gochiusa.osk/file) | [Preview](https://streamable.com/g9sxb5)
 ![screenshot3624](https://user-images.githubusercontent.com/58571851/123554379-59f9cf80-d788-11eb-84ad-65d14b65b725.jpg)
 
-# [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk)
+# [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk) | [Preview](https://streamable.com/jq3ltz)
 ![screenshot3625](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
 
 # [cptnXn freedom dive](https://mega.nz/file/QBo0SQAY#hPdEybPEMA_vV7iC1bCB2dSpC3Un7Y3G8t1Q0uxGjCk)
@@ -137,6 +137,6 @@
 # [bay leaf](https://mega.nz/file/IdRVyaDB#uIZaLGggfmwC0sZWumAAlBSJM75e9jTn5r2oYGRLwVU)
 ![screenshot181](https://user-images.githubusercontent.com/86570889/123856510-b2f46f80-d910-11eb-99d8-caf7ec3d3780.jpg)
 
-# [aetrna v7366149879 remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk)
+# [aetrna v7366149879 remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
 ![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
 
