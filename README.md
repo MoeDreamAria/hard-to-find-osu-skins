@@ -68,7 +68,7 @@
 # [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk) | [Preview](https://streamable.com/d3hq2s)
 ![screenshot3621](https://user-images.githubusercontent.com/58571851/123554120-4732cb00-d787-11eb-9982-3967896fd070.jpg)
 
-# [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](
+# [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
 # [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk) | [Preview](https://streamable.com/p7zm20)
