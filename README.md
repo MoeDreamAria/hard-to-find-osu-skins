@@ -17,6 +17,9 @@
 # [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144) | [Preview](https://youtu.be/6w_BfxtB6wA)
 ![screenshot3601](https://user-images.githubusercontent.com/86570889/123661420-0b017800-d824-11eb-8051-08275447fd73.jpg)
 
+# [aetrna new remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
+![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
+
 # [Acxeleration](https://excel.s-ul.eu/m9jDd8QyybrVa5CE.osk) | [Preview](https://youtu.be/AY1O26D_vzo)
 ![screenshot3602](https://user-images.githubusercontent.com/58571851/123552485-09ca3f80-d77f-11eb-9fa3-ddf82fdeef92.jpg)
 
@@ -31,6 +34,9 @@
 
 # [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk) | [Preview](https://streamable.com/r24c7z)
 ![screenshot3607](https://user-images.githubusercontent.com/58571851/123552768-4e0a0f80-d780-11eb-847c-056ed28072b4.jpg)
+
+# [Potofu new](https://mega.nz/file/9coiUISZ#jAKXMNcJAimr91bY1USaPf7woTxuwGXrGyC0Fov77Yc) | [Preview](https://youtu.be/Mu3ihg9o8E4)
+![screenshot186](https://user-images.githubusercontent.com/86570889/125348136-5e5ae680-e34b-11eb-97a0-be9f6f6b0d31.jpg)
 
 # [gyo](https://excel.s-ul.eu/SpXZkgjCGNv4XQLe.osk) | [Preview](https://youtu.be/t6jmoXBs5KQ)
 ![screenshot3609](https://user-images.githubusercontent.com/58571851/123552835-bfe25900-d780-11eb-9b0d-4f89fb6a9df3.jpg)
@@ -137,8 +143,12 @@
 # [bay leaf](https://mega.nz/file/IdRVyaDB#uIZaLGggfmwC0sZWumAAlBSJM75e9jTn5r2oYGRLwVU) | [Preview](https://youtu.be/MXVNbSsosvk)
 ![screenshot181](https://user-images.githubusercontent.com/86570889/123856510-b2f46f80-d910-11eb-99d8-caf7ec3d3780.jpg)
 
-# [aetrna new remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
-![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
-
 # [PeaChick Original](https://sprosive.s-ul.eu/h1WsrN6J) | [Preview](https://streamable.com/zpmvi0)
 ![screenshot3648](https://user-images.githubusercontent.com/58571851/125319562-8fcfb400-e343-11eb-815b-ae67d17a0cb5.jpg)
+
+# [cr1m v6.1](https://mega.nz/file/gZwSGQBA#d1JDq0DPJ-6FehqS-aAt2b3ZU0xpSuUP70M4zzgbJZs) | [Preview](https://youtu.be/7ZCcU-chQ5E)
+![screenshot187](https://user-images.githubusercontent.com/86570889/125348429-babe0600-e34b-11eb-9ca8-ede1cdaac4e5.jpg)
+
+# [cr1m v7](https://mega.nz/file/VRhwRCyA#k1gnoZeRxqdGU6mTQ1I-do2sZthzhKsG1_Xe53sDFYQ) | [Preview](https://youtu.be/vAzz4xeDj_I)
+![screenshot188](https://user-images.githubusercontent.com/86570889/125348555-eb9e3b00-e34b-11eb-9f69-2872e1aceecb.jpg)
+
