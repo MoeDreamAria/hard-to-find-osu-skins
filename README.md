@@ -140,3 +140,5 @@
 # [aetrna new remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
 ![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
 
+# [PeaChick Original](https://sprosive.s-ul.eu/h1WsrN6J) | [Preview](https://streamable.com/zpmvi0)
+![screenshot3648](https://user-images.githubusercontent.com/58571851/125319562-8fcfb400-e343-11eb-815b-ae67d17a0cb5.jpg)
