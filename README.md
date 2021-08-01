@@ -1,6 +1,8 @@
 # hard-to-find-osu-skins
 ## if you have skins you wanna add to this list or any of the skins from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
+### this page is updated whenever we find a skin suitable for this list, we recommend you check this page every few weeks to see if some skins were added.
+
 
 # [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
