@@ -23,6 +23,9 @@
 # [aetrna new remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
 ![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
 
+# [aetrnalation](https://www.dropbox.com/s/a5dgpaf1asii4gd/aetrnalation.osk?dl=0) | [Preview](https://youtu.be/o9MMlmyyzB4)
+![screenshot3696](https://user-images.githubusercontent.com/58571851/127771973-d52aad35-6189-4205-b7f4-e70aa03f9dec.jpg)
+
 # [aetrnaMikoto](https://mega.nz/file/5QoijSoa#nR2PMY0rrsIHoug0puMQ52fRtU2ezGRnlWNRoCd5144) | [Preview](https://youtu.be/6w_BfxtB6wA)
 ![screenshot3601](https://user-images.githubusercontent.com/86570889/123661420-0b017800-d824-11eb-8051-08275447fd73.jpg)
 
