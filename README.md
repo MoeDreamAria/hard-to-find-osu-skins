@@ -4,6 +4,9 @@
 ### this page is updated whenever we find a skin suitable for this list, we recommend you check this page every few weeks to see if some skins were added.
 
 
+# [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0)
+Ill add screenshots and a preview later KEKEKKEKEK
+
 # [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
