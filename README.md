@@ -4,9 +4,6 @@
 ### this page is updated whenever we find a skin suitable for this list, we recommend you check this page every few weeks to see if some skins were added.
 
 
-# [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0)
-Ill add screenshots and a preview later KEKEKKEKEK
-
 # [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
@@ -123,6 +120,9 @@ Ill add screenshots and a preview later KEKEKKEKEK
 
 # [mecarl](https://mega.nz/file/kFJA1bKL#xcIYFGw_ILnQzhgAiisw5tcBmNFZYUG5KexWmSFtICc) | [Preview](https://youtu.be/kwenmH1akCA)
 ![screenshot168](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
+
+# [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
+![screenshot196](https://user-images.githubusercontent.com/86570889/129324922-f1cdc93a-314d-4e69-b521-38536fd645cc.jpg)
 
 # [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk) | [Preview](https://youtu.be/AVmx1c5LqKg)
 ![screenshot3625](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
