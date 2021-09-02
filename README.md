@@ -136,7 +136,7 @@
 # [Osuloseum](https://excel.s-ul.eu/9ptFfkCgSN8zL80U.osk) | [Preview](https://streamable.com/gpctjs)
 ![screenshot3615](https://user-images.githubusercontent.com/58571851/123553256-d7badc80-d782-11eb-9c21-d8912c2ebf4f.jpg)
 
-# [PeaChick Original](https://sprosive.s-ul.eu/h1WsrN6J) | [Preview](https://streamable.com/zpmvi0)
+# [PeaChick Original](https://sprosive.s-ul.eu/h1WsrN6J) | [Preview](https://streamable.com/zpmvi0) (thanks fucj#1908 for sending us the skin)
 ![screenshot3648](https://user-images.githubusercontent.com/58571851/125319562-8fcfb400-e343-11eb-815b-ae67d17a0cb5.jpg)
 
 # [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk) | [Preview](https://streamable.com/r24c7z)
