@@ -67,7 +67,8 @@
 # [Emperorpenguin83](https://mega.nz/file/wFpkBa4C#jWvHS2ebzWb2ne0RgPpUBMJlUpWEKtaZUzxhp5sCPU0) | [Preview](https://youtu.be/iAbjCPWdxk4)
 ![screenshot165](https://user-images.githubusercontent.com/86570889/123664725-20c46c80-d827-11eb-8318-6d64982cef63.jpg)
 
-# [Heatherfield_Skin](https://cdn.discordapp.com/attachments/448837091347136513/817543956467941446/Heatherfield_Skin.osk) | [Preview/ss added l8tr] | TY angustia#0064 for sharing the skin <3
+# [Heatherfield_Skin](https://cdn.discordapp.com/attachments/448837091347136513/817543956467941446/Heatherfield_Skin.osk) | [Preview](https://streamable.com/e7tdc3) | TY angustia#0064 for sharing the skin <3
+![screenshot3741](https://user-images.githubusercontent.com/58571851/132926417-5c5f3426-3317-4790-9b95-fa71bdb4b8cc.jpg)
 
 # [evb 1](https://mega.nz/file/kN52jKzY#Q5jIOQGTIT3lJJVA4HtLonKQyxaeSR1gzN16ow6S4Ek) | [Preview](https://youtu.be/mqoTTvdUsH4)
 ![screenshot171](https://user-images.githubusercontent.com/86570889/123669552-bc57dc00-d82b-11eb-8e2b-448e83f3dfca.jpg)
