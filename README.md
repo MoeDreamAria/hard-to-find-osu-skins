@@ -145,7 +145,7 @@
 # [mecarl](https://mega.nz/file/kFJA1bKL#xcIYFGw_ILnQzhgAiisw5tcBmNFZYUG5KexWmSFtICc) | [Preview](https://youtu.be/kwenmH1akCA)
 ![screenshot168](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
 
-# [morgan remake](https://mega.nz/file/0ZIWDLTb#GrBvZmIwF5d2jVGomorcKSGzlWcdhmX0WgaZBJ1jqXA) | [Preview](https://youtu.be/oNtNOFgCRk4) *If you have the hitsound of the first notes in the preview please send them to us!*
+# [morgan remake](https://mega.nz/file/0ZIWDLTb#GrBvZmIwF5d2jVGomorcKSGzlWcdhmX0WgaZBJ1jqXA) | [Preview](https://youtu.be/oNtNOFgCRk4) | (If you have the hitsound of the first notes in the preview please send them to us!)
 ![screenshot3803](https://user-images.githubusercontent.com/58571851/138345085-a13db36c-fc93-4626-89b8-1b953042be26.jpg)
 
 # [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
