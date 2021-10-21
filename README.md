@@ -17,6 +17,7 @@
 ![screenshot3624](https://user-images.githubusercontent.com/58571851/123554379-59f9cf80-d788-11eb-84ad-65d14b65b725.jpg)
 
 # [00xfej5](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg) | [Preview](https://youtu.be/aoEnbIjPEkA)
+![screenshot3802](https://user-images.githubusercontent.com/58571851/138344843-a84ad0a6-90e7-48e7-ac3d-b54a89158a76.jpg)
 
 # [5th v1.5](https://excel.s-ul.eu/ve9Y88Qt2wR9aUFP.osk) | [Preview](https://streamable.com/wxez23)
 ![screenshot3600](https://user-images.githubusercontent.com/58571851/123552322-49dcf280-d77e-11eb-8207-187c31a47eb8.jpg)
@@ -25,6 +26,7 @@
 ![screenshot3602](https://user-images.githubusercontent.com/58571851/123552485-09ca3f80-d77f-11eb-9fa3-ddf82fdeef92.jpg)
 
 # [axarious aesthetic 2014 remake](https://mega.nz/file/VF4nhKra#1ciFL2ngJs3cXfZrTlwIChWqmZkuB8FCMjEIbiM112A) | [Preview](https://youtu.be/6dMIKHkNvXQ)
+![screenshot3797](https://user-images.githubusercontent.com/58571851/138344882-ca013c75-656a-49ca-93bd-04a201ef9a66.jpg)
 
 # [aetrna new remake](https://mega.nz/file/EUB2TR7T#Xhp7bVd3TFApK5CHH0ZyXnZEcdnW-kNNdKs1owoRvTk) | [Preview](https://streamable.com/zqjc9k)
 ![screenshot3643](https://user-images.githubusercontent.com/58571851/124380133-ccf0d200-dcc3-11eb-99cc-217fddf6c195.jpg)
@@ -39,11 +41,13 @@
 ![screenshot3603](https://user-images.githubusercontent.com/58571851/123552536-4302af80-d77f-11eb-9ea5-100b23b1b9ff.jpg)
 
 # [astar](https://mega.nz/file/VchBQS7L#IHkCAfGdS07K7Bz3CI-7Vm7H-EhVnBzDUdLa8UaPpq0) | [Preview](https://youtu.be/nPvIZSizeqk)
+![screenshot3798](https://user-images.githubusercontent.com/58571851/138344937-bd8d042b-3b08-4c8e-936b-a62534f2dd75.jpg)
 
 # [bay leaf](https://mega.nz/file/IdRVyaDB#uIZaLGggfmwC0sZWumAAlBSJM75e9jTn5r2oYGRLwVU) | [Preview](https://youtu.be/MXVNbSsosvk)
 ![screenshot181](https://user-images.githubusercontent.com/86570889/123856510-b2f46f80-d910-11eb-99d8-caf7ec3d3780.jpg)
 
 # [bddav old](https://mega.nz/file/RQ5FiCjD#PCbWlkfW3x2jSyZdvDz4wROCTm275L3qJ3DAst5M5no) | [Preview](https://youtu.be/Lx3uFRV4vCo)
+![screenshot3806](https://user-images.githubusercontent.com/58571851/138345578-522e61e7-54f4-4889-815e-9132dde7bf29.jpg)
 
 # [Boom+Kynan](https://excel.s-ul.eu/DVXDMp4gj0YYYuK5.osk) | [Preview](https://youtu.be/Oxdr9FhYiBY)
 ![screenshot3599](https://user-images.githubusercontent.com/58571851/123552217-d89d3f80-d77d-11eb-9ed3-3d9fb585e55d.jpg)
@@ -55,6 +59,7 @@
 ![screenshot3604](https://user-images.githubusercontent.com/58571851/123552576-70e7f400-d77f-11eb-9fae-707a5c7aa984.jpg)
 
 # [Cherry](https://mega.nz/file/1QhBzCQQ#lZzOrI4FUticZLhjFX8Yu0VnpsOUwnPMz4U0r17lbv8)
+![screenshot3800](https://user-images.githubusercontent.com/58571851/138344981-2b587c98-4010-4cc7-93a9-e885f0eaea54.jpg)
 
 # [cptnXn freedom dive](https://mega.nz/file/QBo0SQAY#hPdEybPEMA_vV7iC1bCB2dSpC3Un7Y3G8t1Q0uxGjCk) | [Preview](https://youtu.be/mNNH5gm68WE)
 ![screenshot138](https://user-images.githubusercontent.com/86570889/123662026-95e27280-d824-11eb-8e49-81cc9d2fb297.jpg)
@@ -69,6 +74,7 @@
 ![screenshot3623](https://user-images.githubusercontent.com/58571851/123554207-9973ec00-d787-11eb-8698-a8a97f82b737.jpg)
 
 # [DJ Fuduji](https://mega.nz/file/9cwx1arD#Io4YhT5Bj6Lhj7885sJymgnlbjTfvCcutIrhDeI6Vqk) | [Preview](https://youtu.be/twFa93VF50Q)
+![screenshot3808](https://user-images.githubusercontent.com/58571851/138345564-57e41e64-afae-4b01-afe0-b9b1641eb16e.jpg)
 
 # [Dungeon](https://mega.nz/file/gAwgXBKK#PVxW_Er1LxVdLz63mHAPJJYD79GPdJzJ3S2cSUSvrL4) | [Preview](https://youtu.be/3-_SDf4gs9w?t=880)
 ![screenshot180](https://user-images.githubusercontent.com/86570889/123674457-2626b480-d831-11eb-9cfe-c7afa772d871.jpg)
@@ -113,6 +119,7 @@
 ![screenshot193](https://user-images.githubusercontent.com/86570889/126550647-52e7e756-7a8f-49b5-a51c-01c98934673a.jpg)
 
 # [Jace remake ;_;](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU)
+![screenshot3801](https://user-images.githubusercontent.com/58571851/138345010-c92ef3dc-7298-44cb-a48d-31817d9f7698.jpg)
 
 # [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk) | [Preview](https://streamable.com/9kx5f2)
 ![screenshot3610](https://user-images.githubusercontent.com/58571851/123552874-fa4bf600-d780-11eb-96e7-67c01f74fdc7.jpg)
@@ -139,6 +146,7 @@
 ![screenshot168](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
 
 # [morgan remake](https://mega.nz/file/0ZIWDLTb#GrBvZmIwF5d2jVGomorcKSGzlWcdhmX0WgaZBJ1jqXA) | [Preview](https://youtu.be/oNtNOFgCRk4)
+![screenshot3803](https://user-images.githubusercontent.com/58571851/138345085-a13db36c-fc93-4626-89b8-1b953042be26.jpg)
 
 # [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
 ![screenshot196](https://user-images.githubusercontent.com/86570889/129324922-f1cdc93a-314d-4e69-b521-38536fd645cc.jpg)
@@ -171,8 +179,10 @@
 ![screenshot166](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
 
 # [Saw](https://mega.nz/file/wEhBwYDI#Ko3FUrJx7RTe1TZ1fAuXDLYNsRLBbWUHXFzl80ZYkh8)
+![screenshot3805](https://user-images.githubusercontent.com/58571851/138345315-70791b65-cfd9-4486-bb78-8d29bf69b357.jpg)
 
 # [SeinTIA](https://mega.nz/file/JIwjGQBQ#GGzaAwfFbaxnuBlbhRiFvn03-touhAqsYeCc3mJqTzc)
+![screenshot3804](https://user-images.githubusercontent.com/58571851/138345187-cf5278bf-532b-4157-9efb-579086fa8a70.jpg)
 
 # [senrenbanka2.0](https://excel.s-ul.eu/b5fKFK1exVYBfvMz.osk) | [Preview](https://streamable.com/0zhh3s)
 ![screenshot3618](https://user-images.githubusercontent.com/58571851/123553613-ddb1bd00-d784-11eb-9ba4-d0b3f2446e95.jpg)
