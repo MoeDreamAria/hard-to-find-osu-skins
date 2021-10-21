@@ -58,7 +58,7 @@
 # [Charlotte remake](https://excel.s-ul.eu/xL0hWorDYhH9TG2h.osk) | [Preview](https://streamable.com/fwpt2v)
 ![screenshot3604](https://user-images.githubusercontent.com/58571851/123552576-70e7f400-d77f-11eb-9fae-707a5c7aa984.jpg)
 
-# [Cherry](https://mega.nz/file/1QhBzCQQ#lZzOrI4FUticZLhjFX8Yu0VnpsOUwnPMz4U0r17lbv8)
+# [Cherry](https://mega.nz/file/1QhBzCQQ#lZzOrI4FUticZLhjFX8Yu0VnpsOUwnPMz4U0r17lbv8) | [Preview](https://streamable.com/2xgdrd)
 ![screenshot3800](https://user-images.githubusercontent.com/58571851/138344981-2b587c98-4010-4cc7-93a9-e885f0eaea54.jpg)
 
 # [cptnXn freedom dive](https://mega.nz/file/QBo0SQAY#hPdEybPEMA_vV7iC1bCB2dSpC3Un7Y3G8t1Q0uxGjCk) | [Preview](https://youtu.be/mNNH5gm68WE)
@@ -118,7 +118,7 @@
 # [heinzen](https://www.dropbox.com/s/cmlg5gmnmxqoful/Something%20Something%207.osk?dl=0) | [Preview](https://youtu.be/Q3ouNe0yx8Y)
 ![screenshot193](https://user-images.githubusercontent.com/86570889/126550647-52e7e756-7a8f-49b5-a51c-01c98934673a.jpg)
 
-# [Jace remake ;_;](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU)
+# [Jace remake :(](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU) | [Preview](https://streamable.com/uc8170)
 ![screenshot3801](https://user-images.githubusercontent.com/58571851/138345010-c92ef3dc-7298-44cb-a48d-31817d9f7698.jpg)
 
 # [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk) | [Preview](https://streamable.com/9kx5f2)
@@ -178,10 +178,10 @@
 # [Recia](https://mega.nz/file/RMQkyJ5b#aEQWsfXTKpC5kgq86Ly5q3MNXZv0_-TSOLArKBKswzU) | [Preview](https://youtu.be/dmWdqAS8wAU)
 ![screenshot166](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
 
-# [Saw](https://mega.nz/file/wEhBwYDI#Ko3FUrJx7RTe1TZ1fAuXDLYNsRLBbWUHXFzl80ZYkh8)
+# [Saw](https://mega.nz/file/wEhBwYDI#Ko3FUrJx7RTe1TZ1fAuXDLYNsRLBbWUHXFzl80ZYkh8) | [Preview](https://streamable.com/uk25ph)
 ![screenshot3805](https://user-images.githubusercontent.com/58571851/138345315-70791b65-cfd9-4486-bb78-8d29bf69b357.jpg)
 
-# [SeinTIA](https://mega.nz/file/JIwjGQBQ#GGzaAwfFbaxnuBlbhRiFvn03-touhAqsYeCc3mJqTzc)
+# [SeinTIA](https://mega.nz/file/JIwjGQBQ#GGzaAwfFbaxnuBlbhRiFvn03-touhAqsYeCc3mJqTzc) | [Preview](https://streamable.com/lw55a8)
 ![screenshot3804](https://user-images.githubusercontent.com/58571851/138345187-cf5278bf-532b-4157-9efb-579086fa8a70.jpg)
 
 # [senrenbanka2.0](https://excel.s-ul.eu/b5fKFK1exVYBfvMz.osk) | [Preview](https://streamable.com/0zhh3s)
