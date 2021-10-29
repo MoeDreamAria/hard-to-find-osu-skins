@@ -52,6 +52,8 @@
 # [Boom+Kynan](https://excel.s-ul.eu/DVXDMp4gj0YYYuK5.osk) | [Preview](https://youtu.be/Oxdr9FhYiBY)
 ![screenshot3599](https://user-images.githubusercontent.com/58571851/123552217-d89d3f80-d77d-11eb-9ed3-3d9fb585e55d.jpg)
 
+# [boom v5](https://mega.nz/file/gQQnBabC#pOkdwp0uyayf3vk6NkZ_pk-00ARYihR_gVjsznvasD4) | [Preview]
+
 # [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
 ![screenshot3611](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
 
@@ -124,7 +126,7 @@
 # [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk) | [Preview](https://streamable.com/9kx5f2)
 ![screenshot3610](https://user-images.githubusercontent.com/58571851/123552874-fa4bf600-d780-11eb-96e7-67c01f74fdc7.jpg)
 
-# [kantoku skin](https://mega.nz/file/4RxyWLrZ#3MQlPQmC2YniId7EkFlahG9xtX-ohTecYXSB3mkxJIg) | [Preview](https://youtu.be/4C41NzJwX8E?t=1251)
+# [kantoku skin](https://mega.nz/file/4RxyWLrZ#3MQlPQmC2YniId7EkFlahG9xtX-ohTecYXSB3mkxJIg) | [Preview](https://youtu.be/zDBMsi_cJsM)
 ![screenshot179](https://user-images.githubusercontent.com/86570889/123674081-bb757900-d830-11eb-869c-d27b90bd2261.jpg)
 
 # [kisaragi chihaya aka penew skin](https://mega.nz/file/xUZARBzS#JtDGOO2w-6uM9OzM8tJsdDFCPZOZCbL4WGoPh8IG2EY) | [Preview](https://youtu.be/gXa5e8GFwyA)
