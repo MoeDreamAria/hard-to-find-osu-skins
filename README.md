@@ -7,6 +7,9 @@
 # [~pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
+# [- Lua (Toke Hamster)](https://www.dropbox.com/s/qds1s1vtnjw1u4r/-%20Lua%20%28Toke%20Hamster%29.osk?dl=0) | [Preview](https://www.twitch.tv/videos/488644823)
+![screenshot3831](https://user-images.githubusercontent.com/58571851/140657283-b9e7bcd4-71f8-4772-a25a-8b7b3b1500ed.jpg)
+
 # [-+LunaSakurakouji+-](https://excel.s-ul.eu/wV2PhHuCzqriNOVH.oskAZA) | [Preview](https://streamable.com/eon3zi)
 ![screenshot3616](https://user-images.githubusercontent.com/58571851/123553321-223c5900-d783-11eb-8392-9db589dc2e05.jpg)
 
