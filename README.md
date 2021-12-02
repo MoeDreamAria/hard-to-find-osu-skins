@@ -139,6 +139,9 @@
 # [knalli](https://mega.nz/file/Ud4GzLSK#apzzCBliEZwX4Esj_iwN7ppoySBInP1y8DTtfIlgsC0) | [Preview](https://youtu.be/ql1HHT2Lnz4)
 ![screenshot176](https://user-images.githubusercontent.com/86570889/123672704-2c1b9600-d82f-11eb-94b6-982294e6dfd2.jpg)
 
+# [Kumori 1.2 Beta 4](https://mega.nz/file/xUAWHDIT#AfX2KWao2WJuUTu_7KN5YKqK19CNNo_9l0WNESorHU4) | [Preview](https://youtu.be/OZIEs5CRZg0)
+![screenshot223](https://user-images.githubusercontent.com/86570889/144432248-8ac4edc9-52ef-46c4-b485-03db2e396d46.jpg)
+
 # [lsxyz9](https://mega.nz/file/lY5gnJwB#USsCZDC4V5w_G4UCbK4a59tmAk6C_ilKmz879nGVpVs) | [Preview](https://youtu.be/ZLcKwZSEHcc)
 ![screenshot177](https://user-images.githubusercontent.com/86570889/123673756-5f125980-d830-11eb-9497-ef99c71e1e20.jpg)
 
