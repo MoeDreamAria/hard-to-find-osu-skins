@@ -39,6 +39,9 @@
 # [astar](https://mega.nz/file/VchBQS7L#IHkCAfGdS07K7Bz3CI-7Vm7H-EhVnBzDUdLa8UaPpq0) | [Preview](https://youtu.be/nPvIZSizeqk)
 ![screenshot3798](https://user-images.githubusercontent.com/58571851/138344937-bd8d042b-3b08-4c8e-936b-a62534f2dd75.jpg)
 
+# [ava mix](https://www.dropbox.com/sh/wgiokaq10j3e9so/AAA5DdyrW4HQZ2BFaHaT-TSEa?dl=0&preview=-+%2B+ava+mix.osk) | [Preview](https://streamable.com/204zk2)
+![screenshot3994](https://user-images.githubusercontent.com/58571851/153715183-f98e1b24-8163-4683-b58a-55b1d7a90b6a.jpg)
+
 # [bay leaf](https://mega.nz/file/IdRVyaDB#uIZaLGggfmwC0sZWumAAlBSJM75e9jTn5r2oYGRLwVU) | [Preview](https://youtu.be/MXVNbSsosvk)
 ![screenshot181](https://user-images.githubusercontent.com/86570889/123856510-b2f46f80-d910-11eb-99d8-caf7ec3d3780.jpg)
 
@@ -53,6 +56,9 @@
 
 # [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
 ![screenshot3611](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
+
+# [Charlotte ava](https://twelve14.s-ul.eu/ZgOYtpBY) | [Preview](https://youtu.be/Yhjm0T5H6mc)
+![screenshot3995](https://user-images.githubusercontent.com/58571851/153715220-5a121c30-a6db-4163-b0bc-fa8275950cd1.jpg)
 
 # [Charlotte remake](https://excel.s-ul.eu/xL0hWorDYhH9TG2h.osk) | [Preview](https://streamable.com/fwpt2v)
 ![screenshot3604](https://user-images.githubusercontent.com/58571851/123552576-70e7f400-d77f-11eb-9fae-707a5c7aa984.jpg)
