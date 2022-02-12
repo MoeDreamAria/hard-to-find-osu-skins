@@ -43,6 +43,12 @@
 # [aR!](https://excel.s-ul.eu/RKEQfh8I6HFzCDLV.osk) | [Preview](https://streamable.com/qub7ol)
 ![screenshot3603](https://user-images.githubusercontent.com/58571851/123552536-4302af80-d77f-11eb-9ea5-100b23b1b9ff.jpg)
 
+# [aristia lirua](https://excel.s-ul.eu/nPvFqOjBSqfTopP9.osk) | [Preview](https://www.youtube.com/watch?v=S-c3S6tl8SM)
+![screenshot3988](https://user-images.githubusercontent.com/58571851/153712919-94fb374a-aee7-40ef-b60d-d2fb217b4c88.jpg)
+
+# [aristia bliss dt](https://excel.s-ul.eu/Z5ERUNLYHks3poaO.osk) | [Preview](https://streamable.com/n8a4wg)
+![screenshot3989](https://user-images.githubusercontent.com/58571851/153713076-6ef30fda-97c7-4180-9b25-248091bed598.jpg)
+
 # [astar](https://mega.nz/file/VchBQS7L#IHkCAfGdS07K7Bz3CI-7Vm7H-EhVnBzDUdLa8UaPpq0) | [Preview](https://youtu.be/nPvIZSizeqk)
 ![screenshot3798](https://user-images.githubusercontent.com/58571851/138344937-bd8d042b-3b08-4c8e-936b-a62534f2dd75.jpg)
 
@@ -153,6 +159,9 @@
 
 # [mecarl](https://mega.nz/file/kFJA1bKL#xcIYFGw_ILnQzhgAiisw5tcBmNFZYUG5KexWmSFtICc) | [Preview](https://youtu.be/kwenmH1akCA)
 ![screenshot168](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
+
+# [morgan spring](https://excel.s-ul.eu/RtO67Vrejj2yBIQb.osk) | [Preview](https://streamable.com/b91fpa)
+![screenshot3990](https://user-images.githubusercontent.com/58571851/153713266-f4fe26af-e74e-447a-938b-026f0d2648ed.jpg)
 
 # [morgan remake](https://mega.nz/file/0ZIWDLTb#GrBvZmIwF5d2jVGomorcKSGzlWcdhmX0WgaZBJ1jqXA) | [Preview](https://youtu.be/oNtNOFgCRk4) | (If you have the hitsound of the first notes in the preview please send them to us!)
 ![screenshot3803](https://user-images.githubusercontent.com/58571851/138345085-a13db36c-fc93-4626-89b8-1b953042be26.jpg)
