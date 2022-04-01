@@ -171,6 +171,9 @@
 # [morgan remake](https://mega.nz/file/0ZIWDLTb#GrBvZmIwF5d2jVGomorcKSGzlWcdhmX0WgaZBJ1jqXA) | [Preview](https://youtu.be/oNtNOFgCRk4) | (If you have the hitsound of the first notes in the preview please send them to us!)
 ![screenshot3803](https://user-images.githubusercontent.com/58571851/138345085-a13db36c-fc93-4626-89b8-1b953042be26.jpg)
 
+# [Murasaki_sk xeltol edit](https://cdn.discordapp.com/attachments/899061118675345418/959473758400290886/murasaki.osk) | [Preview](https://www.youtube.com/watch?v=CSoHur7eZWQ)
+![screenshot4084](https://user-images.githubusercontent.com/58571851/161298079-a2260fc3-4871-40c1-bd04-1bb05b2c3920.jpg)
+
 # [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
 ![screenshot196](https://user-images.githubusercontent.com/86570889/129324922-f1cdc93a-314d-4e69-b521-38536fd645cc.jpg)
 
