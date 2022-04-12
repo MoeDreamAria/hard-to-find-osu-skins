@@ -180,6 +180,9 @@
 # [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk) | [Preview](https://youtu.be/AVmx1c5LqKg)
 ![screenshot3625](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
 
+# [Nik's winter cup remake](https://b.catgirlsare.sexy/_0Tbe0vZZ7RK.osk) | [Preview](https://streamable.com/fldtmb)
+![screenshot4103](https://user-images.githubusercontent.com/58571851/162946750-05195ed6-49df-4e3a-86c6-8d11bea9421d.jpg)
+
 # [OhAHO](https://mega.nz/file/BM401KCK#ij0Tx0b1Ni3tzuMeFqr4JrsN6PDhpp1qjR97AaOeZKQ) | [Preview](https://streamable.com/81sajh)
 ![screenshot142](https://user-images.githubusercontent.com/86570889/123662462-05f0f880-d825-11eb-9ba8-79eff1c498b2.jpg)
 
