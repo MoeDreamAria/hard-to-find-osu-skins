@@ -54,7 +54,7 @@
 # [Boom+Kynan](https://excel.s-ul.eu/DVXDMp4gj0YYYuK5.osk) | [Preview](https://youtu.be/Oxdr9FhYiBY)
 ![screenshot3599](https://user-images.githubusercontent.com/58571851/123552217-d89d3f80-d77d-11eb-9ed3-3d9fb585e55d.jpg)
 
-# [boom v5](https://mega.nz/file/gQQnBabC#pOkdwp0uyayf3vk6NkZ_pk-00ARYihR_gVjsznvasD4) | [Preview](https://streamable.com/t30tjb)
+# [boom v5](https://mega.nz/file/gQQnBabC#pOkdwp0uyayf3vk6NkZ_pk-00ARYihR_gVjsznvasD4) | [Preview](https://streamable.com/160w6u)
 ![screenshot3820](https://user-images.githubusercontent.com/58571851/139508244-50b4aa2c-47c0-444f-b0e1-a2185ef4c749.jpg)
 
 # [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
@@ -183,7 +183,7 @@
 # [Nik's winter cup remake](https://b.catgirlsare.sexy/_0Tbe0vZZ7RK.osk) | [Preview](https://streamable.com/fldtmb)
 ![screenshot4103](https://user-images.githubusercontent.com/58571851/162946750-05195ed6-49df-4e3a-86c6-8d11bea9421d.jpg)
 
-# [OhAHO](https://mega.nz/file/BM401KCK#ij0Tx0b1Ni3tzuMeFqr4JrsN6PDhpp1qjR97AaOeZKQ) | [Preview](https://streamable.com/81sajh)
+# [OhAHO](https://mega.nz/file/BM401KCK#ij0Tx0b1Ni3tzuMeFqr4JrsN6PDhpp1qjR97AaOeZKQ) | [Preview](https://streamable.com/cfu8pa)
 ![screenshot142](https://user-images.githubusercontent.com/86570889/123662462-05f0f880-d825-11eb-9ba8-79eff1c498b2.jpg)
 
 # [osu!Koikake](https://excel.s-ul.eu/PJHNYFXj7lFmoV6g.osk) | [Preview](https://streamable.com/ndvwiy)
