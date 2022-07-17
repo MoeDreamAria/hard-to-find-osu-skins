@@ -12,6 +12,12 @@
 # [5th v1.5](https://excel.s-ul.eu/ve9Y88Qt2wR9aUFP.osk) | [Preview](https://streamable.com/wxez23)
 ![screenshot3600](https://user-images.githubusercontent.com/58571851/123552322-49dcf280-d77e-11eb-8207-187c31a47eb8.jpg)
 
+# [Adamqs](https://drive.google.com/file/d/1-IfjpTuueYlX3MZViba95G2oTgTi2sUi) | [Preview](https://www.youtube.com/watch?v=U8gkob1N3kk)
+![screenshot](https://ariania.s-ul.eu/ccYGvmwO)
+
+# [Android4Kitkat](https://drive.google.com/file/d/1-1TdcVZ4MxzwPf9R1_7oa51KDisaqtPD) | [Preview](https://www.youtube.com/watch?v=pZ9sXC6HL1s)
+![screenshot](https://ariania.s-ul.eu/nmpg615Z)
+
 # [Acxeleration](https://excel.s-ul.eu/m9jDd8QyybrVa5CE.osk) | [Preview](https://youtu.be/AY1O26D_vzo)
 ![screenshot3602](https://user-images.githubusercontent.com/58571851/123552485-09ca3f80-d77f-11eb-9fa3-ddf82fdeef92.jpg)
 
@@ -245,6 +251,12 @@
 
 # [Toke+skin+v5+HR](https://b.catgirlsare.sexy/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY) | Thanks Rishard#2011 for sharing the skin!
 ![screenshot4183](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
+
+# [v7 sterrum](https://drive.google.com/file/d/1nQn_I8ZCbO2AdeI2BlRwf35QyBmKKEEE) | [Preview](https://www.youtube.com/watch?v=tk6tPb2xfvg) 
+![screenshot](https://ariania.s-ul.eu/srYppqQ5)
+
+# [v8.1 sterrum](https://drive.google.com/file/d/1-LxcyvMA1TRXUeXOpFBEaT-5H9Cr5Ni0) | [Preview](https://youtu.be/JopRa800IAs?t=1321)
+![screenshot](https://ariania.s-ul.eu/AWxlfBRv)
 
 # [Vocal](https://b.catgirlsare.sexy/NpbvyfP1ndg-.osk) | [Preview](https://www.youtube.com/watch?v=v84b1yl4NVg)
 ![screenshot3993](https://user-images.githubusercontent.com/58571851/153713714-591f75c3-9b40-4318-b03b-727732ff2c0a.jpg)
