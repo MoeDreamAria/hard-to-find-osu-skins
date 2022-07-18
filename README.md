@@ -63,6 +63,9 @@
 # [boom v5](https://mega.nz/file/gQQnBabC#pOkdwp0uyayf3vk6NkZ_pk-00ARYihR_gVjsznvasD4) | [Preview](https://streamable.com/160w6u)
 ![screenshot3820](https://user-images.githubusercontent.com/58571851/139508244-50b4aa2c-47c0-444f-b0e1-a2185ef4c749.jpg)
 
+# [Butterfly](https://mega.nz/file/4bRxGLyS#3cqEHPMGdM5NxXmRLFrlSYwdwePNH9Y6b8p4pov2vwM) | [Preview](https://youtu.be/yP8ELwabdg4?t=1382) | Thanks Rishard#2011 for sharing the skin!
+![screenshot4194](https://user-images.githubusercontent.com/58571851/179580763-035fd0d8-2cb3-4619-b70b-30cfe8708e63.jpg)
+
 # [c81h2q](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
 ![screenshot3611](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
 
@@ -246,11 +249,14 @@
 # [Sunflower Vol.1](https://excel.s-ul.eu/764JtJUnRsbHKpdb.osk) | [Preview](https://www.youtube.com/watch?v=spLv3sFb6jg)
 ![screenshot3992](https://user-images.githubusercontent.com/58571851/153713618-0cec661c-5d3e-43b3-83cd-3373e6c15c76.jpg)
 
+# [Toke+skin+v5+HR](https://b.catgirlsare.sexy/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY) | Thanks Rishard#2011 for sharing the skin!
+![screenshot4183](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
+
 # [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk) | [Preview](https://streamable.com/d3hq2s)
 ![screenshot3621](https://user-images.githubusercontent.com/58571851/123554120-4732cb00-d787-11eb-9982-3967896fd070.jpg)
 
-# [Toke+skin+v5+HR](https://b.catgirlsare.sexy/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY) | Thanks Rishard#2011 for sharing the skin!
-![screenshot4183](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
+# [Toushi Miraizu](https://mega.nz/file/MbgjEIgK#psB1EXxZlHEzabe_WTym8LsKNpt1ugjfE3USqiiXmG8) | [Preview](https://www.youtube.com/watch?v=6jFaHgo1mMM) | Thanks Rishard#2011 for sharing the skin!
+![screenshot4192](https://user-images.githubusercontent.com/58571851/179580279-cf2b31c3-a3e4-4e33-b0d6-adfd1962f982.jpg)
 
 # [v7 sterrum](https://drive.google.com/file/d/1nQn_I8ZCbO2AdeI2BlRwf35QyBmKKEEE) | [Preview](https://www.youtube.com/watch?v=tk6tPb2xfvg) | Thanks [ArtistMatsuri](https://osu.ppy.sh/users/16518808) for sending the skin!
 ![screenshot](https://ariania.s-ul.eu/srYppqQ5)
