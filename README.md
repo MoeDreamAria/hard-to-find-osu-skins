@@ -87,8 +87,14 @@
 # [cr1m v7](https://mega.nz/file/VRhwRCyA#k1gnoZeRxqdGU6mTQ1I-do2sZthzhKsG1_Xe53sDFYQ) | [Preview](https://youtu.be/vAzz4xeDj_I)
 ![screenshot188](https://user-images.githubusercontent.com/86570889/125348555-eb9e3b00-e34b-11eb-9f69-2872e1aceecb.jpg)
 
+# [Corsace Open Remake](https://b.catgirlsare.sexy/Dfr-Kfk5cWRa.osk) | [Preview](https://streamable.com/w9kttc)
+![screenshot4249](https://user-images.githubusercontent.com/58571851/185676084-30c33fb3-9f73-4ba3-b190-a7bb2ef620b9.jpg)
+
 # [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk) | [Preview](https://streamable.com/p7zm20)
 ![screenshot3623](https://user-images.githubusercontent.com/58571851/123554207-9973ec00-d787-11eb-8698-a8a97f82b737.jpg)
+
+# [Da v4.2](https://mega.nz/file/VCYFgYRY#YHiKoRMpOAdIcONotLZ1Pm4iK3mt1lN66jgYG15yNKY) | [Preview](https://www.twitch.tv/ayystar/clip/HungryBitterDootWow?filter=clips&range=all&sort=time) | Thanks Rishard#2011 for sharing the skin!
+![screenshot4243](https://user-images.githubusercontent.com/58571851/185670391-9b1199a6-5fc3-4fb6-b31e-837cab873fa4.jpg)
 
 # [DJ Fuduji](https://mega.nz/file/9cwx1arD#Io4YhT5Bj6Lhj7885sJymgnlbjTfvCcutIrhDeI6Vqk) | [Preview](https://youtu.be/twFa93VF50Q)
 ![screenshot3808](https://user-images.githubusercontent.com/58571851/138345564-57e41e64-afae-4b01-afe0-b9b1641eb16e.jpg)
@@ -137,6 +143,9 @@
 
 # [heinzen](https://www.dropbox.com/s/cmlg5gmnmxqoful/Something%20Something%207.osk?dl=0) | [Preview](https://youtu.be/Q3ouNe0yx8Y)
 ![screenshot193](https://user-images.githubusercontent.com/86570889/126550647-52e7e756-7a8f-49b5-a51c-01c98934673a.jpg)
+
+# [Hexalift v15 purplepink](https://www.mediafire.com/file/pe6rwwymmfsoua0/Hexalift_v15_purplepink.osk/file) | [Preview](https://www.youtube.com/watch?v=hgtg0rRHDhs) | Thanks SilverStar555 for the skin and preview
+![screenshot4247](https://user-images.githubusercontent.com/58571851/185674939-9c6c0fee-4a77-4784-9b80-ec9e2bc74c03.jpg)
 
 # [Jace remake :(](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU) | [Preview](https://streamable.com/uc8170)
 ![screenshot3801](https://user-images.githubusercontent.com/58571851/138345010-c92ef3dc-7298-44cb-a48d-31817d9f7698.jpg)
@@ -207,8 +216,14 @@
 # [pada2.0](https://excel.s-ul.eu/9WxXp0CVttjESX4e.osk) | [Preview](https://streamable.com/gf7lzm)
 ![screenshot3622](https://user-images.githubusercontent.com/58571851/123554159-6fbac500-d787-11eb-9e95-2f63ea850e4f.jpg)
 
+# [PCBG](https://www.mediafire.com/file/xjdlvkyxvveqiji/PCBG.osk/file) | [Preview](https://www.youtube.com/watch?v=Mdvk62IVzlY) | Thanks SilverStar555 for the skin and preview
+![screenshot4245](https://user-images.githubusercontent.com/58571851/185672125-3f0ee483-8618-49c2-ab0f-524f38ed9f66.jpg)
+
 # [PeaChick Original](https://sprosive.s-ul.eu/h1WsrN6J) | [Preview](https://streamable.com/zpmvi0) | Thanks fucj#1908 for sending us the skin
 ![screenshot3648](https://user-images.githubusercontent.com/58571851/125319562-8fcfb400-e343-11eb-815b-ae67d17a0cb5.jpg)
+
+# [Penijima 2013](https://www.mediafire.com/file/r70d6ogdbhdsuxv/Penijima_2013.osk/file) | [Preview](https://www.youtube.com/watch?v=p620SxPZA5E) | Thanks SilverStar555 for the skin and preview
+![screenshot4244](https://user-images.githubusercontent.com/58571851/185672012-32a1e3a9-95c8-49f3-9215-40d8c4894e0b.jpg)
 
 # [Potofu](https://excel.s-ul.eu/148WNGPgQZZg1XwJ.osk) | [Preview](https://streamable.com/r24c7z)
 ![screenshot3607](https://user-images.githubusercontent.com/58571851/123552768-4e0a0f80-d780-11eb-847c-056ed28072b4.jpg)
@@ -251,6 +266,9 @@
 
 # [Toke+skin+v5+HR](https://b.catgirlsare.sexy/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY) | Thanks Rishard#2011 for sharing the skin!
 ![screenshot4183](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
+
+# [Toke - Natsukihina](https://mega.nz/file/JPhBUSaY#TWNRXevz0994QVoqo9077LrdyLEGKJJyzUROnsGkAYQ) | [Preview](https://streamable.com/5vmbka) | Thanks Rishard#2011 for sharing the skin!
+![screenshot4242](https://user-images.githubusercontent.com/58571851/185669922-76e1c9e4-3302-47fe-bc2c-d652838d29e0.jpg)
 
 # [Troogle's Clover Day's skin 14730 v5.2](https://excel.s-ul.eu/lsLYAqgGzvyrg9fg.osk) | [Preview](https://streamable.com/d3hq2s)
 ![screenshot3621](https://user-images.githubusercontent.com/58571851/123554120-4732cb00-d787-11eb-9982-3967896fd070.jpg)
