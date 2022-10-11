@@ -147,7 +147,7 @@
 # [Hexalift v15 purplepink](https://www.mediafire.com/file/pe6rwwymmfsoua0/Hexalift_v15_purplepink.osk/file) | [Preview](https://www.youtube.com/watch?v=hgtg0rRHDhs) | Thanks SilverStar555 for the skin and preview
 ![screenshot4247](https://user-images.githubusercontent.com/58571851/185674939-9c6c0fee-4a77-4784-9b80-ec9e2bc74c03.jpg)
 
-# [Jace remake :(](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU) | [Preview](https://streamable.com/uc8170)
+# [Jace remake](https://mega.nz/file/AB4jlI6R#DQIoQnIGpWhabK5AZTB7HXBcmCPKQJA_AnusZjA4PiU) [:(](https://i.imgur.com/WHgwMK5.png) | [Preview](https://streamable.com/uc8170)
 ![screenshot3801](https://user-images.githubusercontent.com/58571851/138345010-c92ef3dc-7298-44cb-a48d-31817d9f7698.jpg)
 
 # [Kantoku+NSFW](https://excel.s-ul.eu/hf6deoOxQl3i8sbI.osk) | [Preview](https://streamable.com/9kx5f2)
