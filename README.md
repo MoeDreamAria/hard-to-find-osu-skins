@@ -291,13 +291,13 @@
 ## Cool skin
 ### I promised to add this skin to the github if it was umineko themed, and it is so here it is (saying this so that nobody thinks its a random 2010 japanese player's skin that never saw the light of day or something LOL)
 
-# [Umineko arge golden](https://drive.google.com/file/d/1IVOSm7pfxlYoaBuQlRaQ6-3Jc1BNuYSA/view?usp=sharing) | [Preview] (soon) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
+# [Umineko arge golden](https://drive.google.com/file/d/1IVOSm7pfxlYoaBuQlRaQ6-3Jc1BNuYSA/view?usp=sharing) | [Preview](https://streamable.com/ziquua) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
 ![uminekoargeVER1](https://user-images.githubusercontent.com/111258721/185894204-91ada262-a3a8-4251-9659-835b2a53acfb.jpg)
 
-# [Umineko arge gray/gold](https://drive.google.com/file/d/1c7JLa5YglBjBxqrVVkKPAUmb-8bYrOq0/view?usp=sharing) | [Preview] (soon) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
+# [Umineko arge gray/gold](https://drive.google.com/file/d/1c7JLa5YglBjBxqrVVkKPAUmb-8bYrOq0/view?usp=sharing) | [Preview](https://streamable.com/gwjm07) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
 ![uminekoargeGRAYGOLD](https://user-images.githubusercontent.com/111258721/185894384-5108d934-89e2-404a-b612-1aca1c2bfe8a.jpg)
 
-# [Umineko arge rainbow](https://drive.google.com/file/d/18-Kw2EqFCqdLbPs-Rv3xX-SuSzIBikm3/view?usp=sharing) | Preview] (soon) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
+# [Umineko arge rainbow](https://drive.google.com/file/d/18-Kw2EqFCqdLbPs-Rv3xX-SuSzIBikm3/view?usp=sharing) | [Preview](https://streamable.com/yyv4ty) | Made by [akanoriron](https://osu.ppy.sh/users/12958376)
 ![uminekoargeRAINBOW](https://user-images.githubusercontent.com/111258721/185894461-94e078b6-263c-43e3-9b1d-28369d1a2f43.jpg)
 
-### i will try to make a version that isnt instafade and that combocolors work on the hitcircles, hopefully wont take me a while ^_^
+### i will try to make a version that isnt instafade and that combocolors work on the hitcircles, ~~hopefully wont take me a while..~~ **IT WILL TAKE A WHILE**
