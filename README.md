@@ -186,6 +186,9 @@
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![screenshot3614](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
+# [morgan coven fyre remake](https://cdn.discordapp.com/attachments/1031227602469388309/1032072110954270780/morgan__fyre__coven.osk) | [Preview](https://www.youtube.com/watch?v=ax1kPLeTWA0) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
+![screenshot4277](https://user-images.githubusercontent.com/58571851/197208474-c1def489-4723-4332-8a4b-c29030eff5ea.jpg)
+
 # [morgan spring](https://excel.s-ul.eu/RtO67Vrejj2yBIQb.osk) | [Preview](https://www.youtube.com/watch?v=1TJvisuaXoY)
 ![screenshot3990](https://user-images.githubusercontent.com/58571851/153713266-f4fe26af-e74e-447a-938b-026f0d2648ed.jpg)
 
@@ -284,6 +287,9 @@
 
 # [Vocal](https://b.catgirlsare.sexy/NpbvyfP1ndg-.osk) | [Preview](https://www.youtube.com/watch?v=v84b1yl4NVg)
 ![screenshot3993](https://user-images.githubusercontent.com/58571851/153713714-591f75c3-9b40-4318-b03b-727732ff2c0a.jpg)
+
+# [Yamamesita Remake](https://cdn.discordapp.com/attachments/1031227602469388309/1031591901062762496/yamemasita.osk) | [Preview](https://youtu.be/NuJ6-sN11EY) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
+![screenshot4278](https://user-images.githubusercontent.com/58571851/197209701-529fd1ca-8ac7-4b57-bc80-b187568e4ba0.jpg)
 
 # [zzz_unfinished](https://cdn.discordapp.com/attachments/714849342678106193/949765449833390150/zzz_unfinished.osk) | [Preview](https://youtu.be/G1zHvD3VRxQ)
 ![screenshot4038](https://user-images.githubusercontent.com/58571851/156899148-f71a9396-e682-4ace-9689-618246118830.jpg)
