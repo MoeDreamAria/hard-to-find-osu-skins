@@ -186,7 +186,7 @@
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![screenshot3614](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
-# [morgan coven fyre remake](https://cdn.discordapp.com/attachments/1031227602469388309/1032072110954270780/morgan__fyre__coven.osk) | [Preview](https://www.youtube.com/watch?v=ax1kPLeTWA0) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
+# [morgan coven fyre remake]([https://cdn.discordapp.com/attachments/1031227602469388309/1032072110954270780/morgan__fyre__coven.osk](https://cdn.discordapp.com/attachments/1033101472881193020/1033502728648921188/morgan__fyre__coven.osk)) | [Preview](https://www.youtube.com/watch?v=ax1kPLeTWA0) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
 ![screenshot4277](https://user-images.githubusercontent.com/58571851/197208474-c1def489-4723-4332-8a4b-c29030eff5ea.jpg)
 
 # [morgan spring](https://excel.s-ul.eu/RtO67Vrejj2yBIQb.osk) | [Preview](https://www.youtube.com/watch?v=1TJvisuaXoY)
