@@ -1,9 +1,8 @@
 # hard-to-find-osu-skins
 ## if you have skins you wanna add to this list or any of the skins from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
-### this page is updated whenever we find a skin suitable for this list, we recommend you check this page every few weeks to see if some skins were added.
-
-
+this page is updated whenever we find a skin suitable for this list, we recommend you check this page every few weeks to see if some skins were added.
+### other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/wonderer-osu-skins), [Rustbell skins](https://gist.github.com/entwastaken/5c081eca8eb5239af1e52964a8c66ae6), [ryh's skin list](https://github.com/1ryh/ryh-osu-skins), [Garnet27's skin list](https://github.com/Garnet27/osu-Garnet27-Public-Skins/blob/master/Skins.md), [ypan and malis skins](https://github.com/ypan53/skins/blob/main/skins.md), [rudj's skinhub](https://github.com/rudjx3/skins/blob/main/README.md), [osu brazil skins](https://sites.google.com/view/osu-skins-br/skins?authuser=0) | *DISCLAIMER: Links on garnet's github are most likely ip loggers, we recommend using [urlex](https://urlex.org/) to bypass them.*
 
 
 # [00xfej5](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg) | [Preview](https://youtu.be/aoEnbIjPEkA)
@@ -186,7 +185,7 @@
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![screenshot3614](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
-# [morgan coven fyre remake]([https://cdn.discordapp.com/attachments/1031227602469388309/1032072110954270780/morgan__fyre__coven.osk](https://cdn.discordapp.com/attachments/1033101472881193020/1033502728648921188/morgan__fyre__coven.osk)) | [Preview](https://www.youtube.com/watch?v=ax1kPLeTWA0) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
+# [morgan coven fyre remake](https://cdn.discordapp.com/attachments/1033101472881193020/1033619218777767976/morgan__fyre__coven.osk) | [Preview](https://www.youtube.com/watch?v=ax1kPLeTWA0) | THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
 ![screenshot4277](https://user-images.githubusercontent.com/58571851/197208474-c1def489-4723-4332-8a4b-c29030eff5ea.jpg)
 
 # [morgan spring](https://excel.s-ul.eu/RtO67Vrejj2yBIQb.osk) | [Preview](https://www.youtube.com/watch?v=1TJvisuaXoY)
@@ -293,6 +292,7 @@
 
 # [zzz_unfinished](https://cdn.discordapp.com/attachments/714849342678106193/949765449833390150/zzz_unfinished.osk) | [Preview](https://youtu.be/G1zHvD3VRxQ)
 ![screenshot4038](https://user-images.githubusercontent.com/58571851/156899148-f71a9396-e682-4ace-9689-618246118830.jpg)
+
 
 ## Cool skin
 ### I promised to add this skin to the github if it was umineko themed, and it is so here it is (saying this so that nobody thinks its a random 2010 japanese player's skin that never saw the light of day or something LOL)
