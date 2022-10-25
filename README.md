@@ -114,6 +114,10 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [Emperorpenguin83](https://mega.nz/file/wFpkBa4C#jWvHS2ebzWb2ne0RgPpUBMJlUpWEKtaZUzxhp5sCPU0) | [Preview](https://youtu.be/iAbjCPWdxk4)
 ![](https://user-images.githubusercontent.com/86570889/123664725-20c46c80-d827-11eb-8318-6d64982cef63.jpg)
 
+# [exhibit c remake](https://xohlity.s-ul.eu/fFd3Jwli) | [Preview](https://streamable.com/bk7s76)
+### Massive thanks to xohlity#1209 , hael#7011 and Nymphia#8610 (NCRONFNTOPHLIAC#6452 for helping with sliderb0 and hit animations) for remaking the skin.
+![screenshot4284](https://user-images.githubusercontent.com/58571851/197828776-06589849-dd22-41ab-936f-2768422f7a9e.jpg)
+
 # [evb 1](https://mega.nz/file/kN52jKzY#Q5jIOQGTIT3lJJVA4HtLonKQyxaeSR1gzN16ow6S4Ek) | [Preview](https://youtu.be/mqoTTvdUsH4)
 ![](https://user-images.githubusercontent.com/86570889/123669552-bc57dc00-d82b-11eb-8e2b-448e83f3dfca.jpg)
 
@@ -190,7 +194,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
-# [morgan coven fyre remake](https://cdn.discordapp.com/attachments/1033101472881193020/1033619218777767976/morgan__fyre__coven.osk) | [Preview](https://youtu.be/ax1kPLeTWA0)
+# [morgan coven fyre remake](https://b.catgirlsare.sexy/I3Eb-6bA7H-L.osk) | [Preview](https://youtu.be/ax1kPLeTWA0)
 ### THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
 ![](https://user-images.githubusercontent.com/58571851/197208474-c1def489-4723-4332-8a4b-c29030eff5ea.jpg)
 
