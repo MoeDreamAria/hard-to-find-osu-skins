@@ -7,6 +7,13 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 
 ***
 
+# [Trinoline](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) | [Preview](https://youtu.be/NIwMJGnCzqE)
+## [1:1 remastered & upscaled version](https://cdn.discordapp.com/attachments/843199850773872680/1035158336955502622/Trinoline_Remaster.osk) by Nymphia#8610
+![](https://user-images.githubusercontent.com/86570889/198289431-8895d218-0c93-4eab-9199-d18c150a4de6.jpg)
+![](https://user-images.githubusercontent.com/86570889/198289446-f519ece4-169c-4b0f-919e-2985dbea390e.jpg)
+
+***
+
 # [00xfej5](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg) | [Preview](https://youtu.be/aoEnbIjPEkA)
 ![](https://user-images.githubusercontent.com/58571851/138344843-a84ad0a6-90e7-48e7-ac3d-b54a89158a76.jpg)
 
