@@ -191,6 +191,9 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [Mecarl](https://mega.nz/file/kFJA1bKL#xcIYFGw_ILnQzhgAiisw5tcBmNFZYUG5KexWmSFtICc) | [Preview](https://youtu.be/kwenmH1akCA)
 ![](https://user-images.githubusercontent.com/86570889/123667962-27a0ae80-d82a-11eb-83be-2b3386e4bd61.jpg)
 
+# [Meltina 28.1.16](https://mega.nz/file/NdxCjADL#3c6YjnPFpGIvq7Bt0CeoEXCBvqcSI6lRRBC0zn9tmpA) | [Preview](https://youtu.be/EN9gLz1AgBw)
+![](https://user-images.githubusercontent.com/86570889/198280611-3144f3e1-4e4f-49a5-8089-421e107acc50.jpg)
+
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
@@ -205,7 +208,10 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 ### (If you have the hitsounds in the preview please send them to us!)
 ![](https://user-images.githubusercontent.com/58571851/138345085-a13db36c-fc93-4626-89b8-1b953042be26.jpg)
 
-# [Murasaki_sk xeltol edit](https://cdn.discordapp.com/attachments/899061118675345418/959473758400290886/murasaki.osk) | [Preview](https://youtu.be/CSoHur7eZWQ)
+# [Mugio3 (Vento edit)](https://mega.nz/file/MIoihKRB#LHisympdjcSL7XaoGNhBKZWFiBbvVcIZ-vrBdbFb5oo) | [Preview](https://streamable.com/exi7mo)
+![](https://user-images.githubusercontent.com/86570889/198281551-617e126c-8f41-4cea-937e-311b388fc80c.jpg)
+
+# [Murasaki_sk (Xeltol edit)](https://cdn.discordapp.com/attachments/899061118675345418/959473758400290886/murasaki.osk) | [Preview](https://youtu.be/CSoHur7eZWQ)
 ![](https://user-images.githubusercontent.com/58571851/161298079-a2260fc3-4871-40c1-bd04-1bb05b2c3920.jpg)
 
 # [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
@@ -252,6 +258,9 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 
 # [Recia](https://mega.nz/file/RMQkyJ5b#aEQWsfXTKpC5kgq86Ly5q3MNXZv0_-TSOLArKBKswzU) | [Preview](https://youtu.be/dmWdqAS8wAU)
 ![](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
+
+# [Rixia Mao](https://mega.nz/file/YBQ3zSDC#EUmbuqdv8kIoyhnjdpAdwbYyVa4-EIveUCm5kCjpfbA) | [Preview](https://youtu.be/YbRBnuq9JAw?t=93)
+![](https://user-images.githubusercontent.com/86570889/198282920-1c37745a-721c-4047-918e-d1b99b731d3a.jpg)
 
 # [Saw](https://mega.nz/file/wEhBwYDI#Ko3FUrJx7RTe1TZ1fAuXDLYNsRLBbWUHXFzl80ZYkh8) | [Preview](https://streamable.com/uk25ph)
 ![](https://user-images.githubusercontent.com/58571851/138345315-70791b65-cfd9-4486-bb78-8d29bf69b357.jpg)
