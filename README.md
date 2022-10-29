@@ -7,8 +7,8 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 
 ***
 
-# [Trinoline](https://mega.nz/file/FxgHHBbI#qp_yARDPEVdUDmGbVHTc-FK62O3s1Gwo7s40zQIObQo) | [Preview](https://youtu.be/NIwMJGnCzqE)
-## [1:1 remastered & upscaled version](https://cdn.discordapp.com/attachments/843199850773872680/1035158336955502622/Trinoline_Remaster.osk) by Nymphia#8610
+# [Trinoline](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) | [Preview](https://youtu.be/NIwMJGnCzqE)
+## [1:1 remastered & upscaled version](https://mega.nz/file/FxgHHBbI#qp_yARDPEVdUDmGbVHTc-FK62O3s1Gwo7s40zQIObQo) by Nymphia#8610
 ![](https://user-images.githubusercontent.com/86570889/198289431-8895d218-0c93-4eab-9199-d18c150a4de6.jpg)
 ![](https://user-images.githubusercontent.com/86570889/198289446-f519ece4-169c-4b0f-919e-2985dbea390e.jpg)
 
@@ -180,7 +180,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [Kumori 1.2 Beta 4](https://mega.nz/file/xUAWHDIT#AfX2KWao2WJuUTu_7KN5YKqK19CNNo_9l0WNESorHU4) | [Preview](https://youtu.be/OZIEs5CRZg0)
 ![](https://user-images.githubusercontent.com/86570889/144432248-8ac4edc9-52ef-46c4-b485-03db2e396d46.jpg)
 
-# [La Valse (Vento edit](https://mega.nz/file/ZU4iGJiJ#m7yeH9v6Won1bpK7lbGftapnMn1K3csdBRKNYBGm78k) | [Preview](https://jeffe.s-ul.eu/sMiMlKrS)
+# [La Valse (Vento edit)](https://mega.nz/file/ZU4iGJiJ#m7yeH9v6Won1bpK7lbGftapnMn1K3csdBRKNYBGm78k) | [Preview](https://jeffe.s-ul.eu/sMiMlKrS)
 ![screenshot4285](https://user-images.githubusercontent.com/58571851/198852327-0e675a34-e0f5-470f-8617-248f2c12e1a8.jpg)
 
 # [lsxyz9](https://mega.nz/file/lY5gnJwB#USsCZDC4V5w_G4UCbK4a59tmAk6C_ilKmz879nGVpVs) | [Preview](https://youtu.be/ZLcKwZSEHcc)
