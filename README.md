@@ -8,7 +8,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 ***
 
 # [Trinoline](https://mega.nz/file/cExi0Kga#-U0tyrp1TTJsuq-jdfaf8rf6bngti-Br1BJVKFC9Bjo) | [Preview](https://youtu.be/NIwMJGnCzqE)
-## [1:1 remastered & upscaled version](https://mega.nz/file/FxgHHBbI#qp_yARDPEVdUDmGbVHTc-FK62O3s1Gwo7s40zQIObQo) by Nymphia#8610
+## [1:1 remastered & upscaled version](https://cdn.discordapp.com/attachments/906913494799118357/1036416352006721606/Trinoline_Remaster.osk) by Nymphia#8610
 ![](https://user-images.githubusercontent.com/86570889/198289431-8895d218-0c93-4eab-9199-d18c150a4de6.jpg)
 ![](https://user-images.githubusercontent.com/86570889/198289446-f519ece4-169c-4b0f-919e-2985dbea390e.jpg)
 
@@ -146,7 +146,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [haga1115 remake](https://mega.nz/file/hMwyTQIZ#YFxtaCQ13Gwlda_392zuOzJcK5ANEVN0yvZqZeQVLHU) | [Preview](https://streamable.com/864a4k)
 ![](https://user-images.githubusercontent.com/58571851/123552049-0f268a80-d77d-11eb-8376-2a3ada6f4a8d.jpg)
 
-# [HappyStick summer tour](https://mega.nz/file/UBhinaqS#mBmnIagcsLaNwM71l3g4xBTl-2cI7iFWiOHbWRmtbwQ) | [Preview](https://streamable.com/61biqu)
+# [HappyStick Summer Tour](https://mega.nz/file/UBhinaqS#mBmnIagcsLaNwM71l3g4xBTl-2cI7iFWiOHbWRmtbwQ) | [Preview](https://streamable.com/61biqu)
 ![](https://user-images.githubusercontent.com/86570889/123670486-caf2c300-d82c-11eb-9d1e-c695fa58f755.jpg)
 
 # [Hatsuyuki SakuraVer1.1](https://excel.s-ul.eu/FPqVFjEjGbzKOyoW.osk) | [Preview](https://streamable.com/y7ij5u)
@@ -296,7 +296,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 # [stars r pretty](https://excel.s-ul.eu/yFhoOvLGPg3EnvtE.osk) | [Preview](https://streamable.com/z6a3nd)
 ![](https://user-images.githubusercontent.com/58571851/153713418-7e659001-b894-44c5-89cb-4021685c6374.jpg)
 
-# [SUKJA skin](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
+# [SUKJA skin edit](https://excel.s-ul.eu/4p9wz6wGutwY6ICv.osk) | [Preview](https://streamable.com/cxqzmz)
 ![](https://user-images.githubusercontent.com/58571851/123552976-7e9e7900-d781-11eb-929a-7d1c51e943a9.jpg)
 
 # [Sunflower Vol.1](https://excel.s-ul.eu/764JtJUnRsbHKpdb.osk) | [Preview](https://youtu.be/spLv3sFb6jg)
@@ -306,7 +306,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 ### Thanks Rishard#2011 for sharing the skin!
 ![](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
 
-# [Toke - Natsukihina](https://mega.nz/file/JPhBUSaY#TWNRXevz0994QVoqo9077LrdyLEGKJJyzUROnsGkAYQ) | [Preview](https://streamable.com/5vmbka)
+# [Toke - Natsukihina (- DARK - edit)](https://mega.nz/file/JPhBUSaY#TWNRXevz0994QVoqo9077LrdyLEGKJJyzUROnsGkAYQ) | [Preview](https://streamable.com/5vmbka)
 ### Thanks Rishard#2011 for sharing the skin!
 ![](https://user-images.githubusercontent.com/58571851/185669922-76e1c9e4-3302-47fe-bc2c-d652838d29e0.jpg)
 
@@ -338,7 +338,7 @@ other cool skin githubs: [Wonderer's skin list](https://github.com/wonderer0103/
 ***
 
 ## Cool skin
-Made by [akanoriron](https://osu.ppy.sh/users/12958376)
+#### Made by [akanoriron](https://osu.ppy.sh/users/12958376)
 I promised to add this skin to the github if it was umineko themed, and it is so here it is (saying this so that nobody thinks its a random 2010 japanese player's skin that never saw the light of day or something LOL)
 
 # [Umineko arge golden](https://drive.google.com/file/d/1IVOSm7pfxlYoaBuQlRaQ6-3Jc1BNuYSA/view?usp=sharing) | [Preview](https://streamable.com/ziquua)
